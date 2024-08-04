@@ -1,7 +1,7 @@
 _**## Olá, seja bem-vindo ao meu perfil ❤️**_
 
+`Nesse perfil estará o trajeto de aprendizado das linguagens de programação.
 
-**Aninhabia0504/Aninhabia0504** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-`Nesse perfil estará o trajeto de aprendizado das linguagens de programação.`
-       Espero ter bons projetos para compartilhar no perfil
+       Espero ter bons projetos para compartilhar no perfil`
+       [Meu instagram](https://www.instagram.com/aninhabeatrizc/)
+[](https://tenor.com/pt-BR/search/girl-gifs)
